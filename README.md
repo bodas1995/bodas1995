@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bodas1995
 - 👀 I’m interested in  1c  программирова, и другимы и языками
-- 🌱 I’m  работаю в кампании TQM sytems  Urkaine
+- 🌱 I’m  работаю в кампании TQM systems  Ukraine
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
